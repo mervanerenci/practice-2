@@ -1,0 +1,1 @@
+Pratik 2 tamamlandı
